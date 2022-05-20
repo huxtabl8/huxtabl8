@@ -1,3 +1,5 @@
+**I will be gone the majority of this summer, like usual.**
+
 - 👋 Hi, I’m @huxtabl8
 - 👀 I'm into web devlopment and coding
 - 🌱 I’m currently learning how to use Ren'py
