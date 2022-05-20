@@ -1,4 +1,5 @@
 **I will be gone the majority of this summer, like usual.**
+*I won't be posting much, mind that...*
 
 - 👋 Hi, I’m @huxtabl8
 - 👀 I'm into web devlopment and coding
